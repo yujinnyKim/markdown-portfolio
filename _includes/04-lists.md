@@ -1,0 +1,8 @@
+- ✨
+- 🥇
+- 💗
+- HTML/CSS
+- JS
+- Python
+- Unity 
+- programming languages, or skills (being updated rn)
